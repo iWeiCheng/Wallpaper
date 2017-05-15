@@ -7,6 +7,6 @@
 
 >Url :      https://play.google.com/store/apps/details?id=com.m2c.studio.transparent.screen
 
-看着有点酷的样子
+
 
 
